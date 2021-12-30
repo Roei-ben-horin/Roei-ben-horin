@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Roei-ben-horin
 - 👀 I’m interested in ... learning as much as I can about computers
-- 🌱 I’m currently learning ... that
+- 🌱 I’m currently learning ... nothing in particular
 - 💞️ I’m looking to collaborate on ... nothing right now, maybe in the future
 - 📫 How to reach me ... roei.benhorin@protonmail.com
 
